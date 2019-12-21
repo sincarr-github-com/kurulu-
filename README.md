@@ -1,0 +1,2 @@
+# kurulu-
+Pazarlama
